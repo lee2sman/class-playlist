@@ -28,7 +28,7 @@ Ho Hey https://www.youtube.com/watch?v=zvCBSSwgtg4
 Ho Hey (Official Video) |The Lumineers| 265,687,905 views
 
 Let Her Go https://www.youtube.com/watch?v=RBumgq5yVrA
-Passenger Let Her Go (Official Video) 3,091,592,047 views
+Let Her Go (Official Video) |Passenger| 3,091,592,047 views
 
 Modal Soul |Nujabes| https://www.youtube.com/watch?v=hUMpg1ii4_A&t=1341s
 Modal Soul Album | Nujabes| 2,157,556 views
@@ -54,7 +54,7 @@ In The End https://www.youtube.com/watch?v=eVTXPUF4Oz4
 In The End [Official HD Music Video] |Linkin Park| 1,275,046,363 views
 
 Let Her Go https://www.youtube.com/watch?v=RBumgq5yVrA
-Passenger Let Her Go (Official Video) 3,091,592,047 views
+ Let Her Go (Official Video) |Passenger| 3,091,592,047 views
 
 Modal Soul |Nujabes| https://www.youtube.com/watch?v=hUMpg1ii4_A&t=1341s
 Modal Soul Album | Nujabes| 2,157,556 views 
