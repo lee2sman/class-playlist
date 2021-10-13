@@ -65,9 +65,6 @@ Rude |MAGIC!| 2,132,592,425 views
 Start Me Up (Ofiicial Promo)  https://www.youtube.com/watch?v=SGyOaCXr8Lw
 Start Me Up |The Rolling Stone| 48,877,447 views
 
-
-
-
 The Scientist (Official Video) https://www.youtube.com/watch?v=RB-RcX5DS5A
 The Scientist |Coldplay| 981,770,963 views
 
