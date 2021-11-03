@@ -69,6 +69,9 @@
 - [Gaya](https://www.youtube.com/watch?v=sHQL4uBSFD4)
 
   Gaya | Michael Brun X Lakou Mizik | 1,173,022 views
+- [In The End](https://www.youtube.com/watch?v=eVTXPUF4Oz4)
+
+  In The End | Linkin Park | 1,285,166,370 views
 
 ## Fear
 
