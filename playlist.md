@@ -34,6 +34,44 @@
 - [Ili](https://www.youtube.com/watch?v=wOHjkv9_S0U)
 
   Left Is Right | Troy Boy |   133,863 views
+
+- [Judas Effect] | Lionheart | 725,185 views 
+(https://www.youtube.com/watch?v=-D-JmIGGECk)
+
+- [Sunday Bloom] | Molfie | 1,606 views
+(https://www.youtube.com/watch?v=SCvdwq9FE8A)
+
+- [Meander] | Jobii | 15,639 views
+(https://www.youtube.com/watch?v=32oc4eP9w5w)
+
+- [Oak City] | Sara The Instrumentalist | 41,876 views 
+(https://www.youtube.com/watch?v=IIINu_Qd_VY)
+
+- [Come 2gether] | Ooyy | 3,111,340 views
+(https://www.youtube.com/watch?v=7aouQRbx6ts)
+
+- [Before Chill] | Yomoti | 486,876 views
+(https://www.youtube.com/watch?v=K0QKFsoOOjk)
+
+- [Cats Walking] | Yomoti | 489,549 views
+(https://www.youtube.com/watch?v=B9Evceq6V1g)
+
+- [Tortise Shell] | Jobii | 3,387 views 
+(https://www.youtube.com/watch?v=5g7ZQtirZzM)
+
+- [Shake Down] | Jules Gaia | 812,116 views
+(https://www.youtube.com/watch?v=EajyYAps7SQ)
+
+- [Canals] | Joakim Karud | 4,614,867 views 
+(https://www.youtube.com/watch?v=jxpEdiB6U88)
+
+- [Along The Moonlit Path] | After Noon | 429 views
+(https://www.youtube.com/watch?v=MjRpPB-k98Y)
+
+- [Crimson] | Ark Patrol | 1,671 views
+(https://www.youtube.com/watch?v=PB_4HcfSlfI)
+
+
 ## Edgy
 - [Lisa the Painful OST](https://www.youtube.com/watch?v=ByKll4eIjwo&list=PLPAsf8Volpy3OoTL0fFmSLMuv8oK0s1Rk)
 
@@ -56,6 +94,21 @@
 
   Untourable Album | Men I Trust | 58,288 views
 
+- [Let Go] | Ark Patrol | 18,844,487 views
+(https://www.youtube.com/watch?v=1kZCVdU1N6o)
+
+- [At All] | Ark Patrol | 110,586 views
+(https://www.youtube.com/watch?v=uc7IDPUNy6c)
+
+- [Ms. Poli Sci] | Paul Russel | 356,383 views
+(https://www.youtube.com/watch?v=dsHTtgSQHYs)
+
+- [Memory Reboot] | VOJ & Narvent | 13,882,484 views
+(https://www.youtube.com/watch?v=44UaY-AN6ho)
+
+- [Rocket Jump Waltz Remix No Heavy] | Martin Chlud | Original Video 1,266,846 views
+(https://www.youtube.com/watch?v=o_dMvX2VAiE)
+
 ## Energetic
 - [September](https://www.youtube.com/watch?v=3cKtSlsYVEU)
 
@@ -70,6 +123,33 @@
 
   Gaya | Michael Brun X Lakou Mizik | 1,173,022 views
 
+- [Burn It Down] | Linkin Park | 375,282,224 views
+(https://www.youtube.com/watch?v=dxytyRy-O1k)
+
+- [Midnight City] | M83 | 427,480,775 views 
+(https://www.youtube.com/watch?v=dX3k_QDnzHE)
+
+- [Crab Boys] | Auxjack | 3,481 views
+(https://www.youtube.com/watch?v=0OVw6ilr434)
+
+- [Shake Down] | Jules Gaia | 812,116 views
+(https://www.youtube.com/watch?v=EajyYAps7SQ)
+
+- [Move Like This] | Jules Gaia | 283,151 views
+(https://www.youtube.com/watch?v=zKJGxHvjcSI)
+
+- [Extravaganza] | Jules Gaia | 331,242 views
+(https://www.youtube.com/watch?v=zwc579rIdw0)
+
+- [Wii Shop Trap] | Flixterr | 1,745,978 views 
+(https://www.youtube.com/watch?v=HbbGCld47mA)
+
+- [Coconut Mall] | vgr | 1,104,284 views
+(https://www.youtube.com/watch?v=hlpGhchmXRk)
+
+- [Lobby Music] | Kahoot | 1,661,147 views
+(https://www.youtube.com/watch?v=yjwJIjNuniQ)
+
 ## Fear
 
 - [Mercury](https://www.youtube.com/watch?v=31j4DIpgY9U)
@@ -79,6 +159,9 @@
 - [Fear](https://www.youtube.com/watch?v=pRnrujxbEhc)
 
   So Far Gone | Drake | 708,048 views
+
+- [By The Sword] | iamjakehill | Original Video 36,848,397 views
+(https://www.youtube.com/watch?v=WTuYKvrlwyo)
 
 ## Joyful
 - [Summer of 1984](https://youtu.be/cmwomhy81qg)
@@ -96,3 +179,64 @@
 - [Enjoy](https://www.youtube.com/watch?v=RKomOZTdhVg)
 
   Enjoy | J-Perry | 205,278 views
+
+## Rock
+- [Battle Born] | Five Finger Death Punch | 77,438,044 views
+(https://www.youtube.com/watch?v=LyA1GL1touw)
+
+- [Bad Company] | Five Finger Death Punch | 177,798,564 views 
+(https://www.youtube.com/watch?v=u_VsvZmIWxY)
+
+- [Toxicity] | System Of A Down | 825,924,425 views
+(https://www.youtube.com/watch?v=iywaBOMvYLI)
+
+- [This Fire] | Franz Ferdinand | Original Video 13,333,321 views
+(https://www.youtube.com/watch?v=VSGyiYLQwhY)
+
+- [Enter Sandman] | Metallica | Original Video 620,343,836 views
+(https://www.youtube.com/watch?v=XZuM4zFg-60)
+
+- [Sweet Old Child Of Mine] | Guns N' Roses | 1,584,291,043 views
+(https://www.youtube.com/watch?v=1w7OgIMMRc4)
+
+- [Don't Tread On Me from Metallica] | Volbeat | 3,229,583 views
+(https://www.youtube.com/watch?v=NJMZ6OB3ofM)
+
+- [Come As You Are] | Nirvana | 522,009,367 views
+(https://www.youtube.com/watch?v=vabnZ9-ex7o)
+
+- [Shepherd of Fire] | Avenged Sevenfold | 77,299,887 views
+(https://www.youtube.com/watch?v=bT8FEOJEFcI)
+
+- [I Don't Wanna Stop] | Ozzy Osbourne | 29,072,789 views
+(https://www.youtube.com/watch?v=2nX6qGeyaGM)
+
+- [Mr. Crowley] | Ozzy Osbourne | 73,825,587 views
+(https://www.youtube.com/watch?v=G3LvhdFEOqs)
+
+- [Thunderstruck] | AC/DC | 1,345,100,995 views
+(https://www.youtube.com/watch?v=v2AC41dglnM)
+
+- [Shoot To Thrill] | AC/DC | 25,622,757 views
+(https://www.youtube.com/watch?v=D8LTCr3BQW8)
+
+- [Can't Stop] | Red Hot Chilli Peppers | Original Video 365,736,299 views
+(https://www.youtube.com/watch?v=eLxO_aUbv4c)
+
+- [Song 2] | Blue | Original Video 173,158,878 views
+(https://www.youtube.com/watch?v=eXS89RFUlOY)
+
+- [Valhalla Calling] | Mircale of Sound | 76,591,172 views
+(https://www.youtube.com/watch?v=jxptIpCYAJA)
+
+- [To Be Better] | Mircale of Sound | 3,439,619 views
+(https://www.youtube.com/watch?v=jA5p3RAxGPU)
+
+- [Stupidfy] | Disturbed | Original Video 33,910,204 views
+(https://www.youtube.com/watch?v=J3XvUCa6YNQ)
+
+- [Who Can It Be Now?] | Men At Work | 161,520,564 views 
+(https://www.youtube.com/watch?v=SECVGN4Bsgg)
+
+- [Down Under] | Men At Work | 371,333,627 views 
+(https://www.youtube.com/watch?v=XfR9iY5y94s)
